@@ -1,3 +1,3 @@
-### OhGyong's Github
+### O_Gyong's Github
 
 😁
